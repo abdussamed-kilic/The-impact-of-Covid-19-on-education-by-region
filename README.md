@@ -1,4 +1,4 @@
-# The-impact-of-Covid-19-on-education-by-region
+# The Impact of Covid-19 on Education By Region
 
  Abdüssamed KILIÇ  |  17030411059
 
